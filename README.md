@@ -12,6 +12,8 @@ Si supiera que solo me queda un año para vivir con plenitud, me dedicaría a es
 
 ### Fortalezas en momentos difíciles 💪
 
+### Brandon Gomez
+
 Brandon compartió una experiencia significativa en la que, después de una relación con una chica pelirroja que significó mucho para él, se sintió profundamente perdido cuando ella terminó la relación inesperadamente. Esta ruptura, combinada con su insatisfacción profesional, lo llevó a un vacío existencial. Se dio cuenta de que había puesto demasiada esperanza en la relación para encontrar estabilidad emocional y que su vida carecía de dirección.
 
 Sin embargo, tras mucho dolor y reflexión, Brandon redescubrió su pasión por la música, algo que había dejado de lado por enfocarse en cumplir expectativas externas. Comenzó a escribir canciones y a procesar su dolor, encontrando en la música una forma de sanar y reconectar con su verdadero yo. Aprendió que el propósito no estaba en depender de alguien más, sino en encontrar paz interior y amor propio.
